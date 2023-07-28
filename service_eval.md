@@ -12,3 +12,7 @@ Some of the issues that the Transgender Law Center addresses include:
 5. Education and youth rights: TLC works to ensure that transgender and gender nonconforming youth have access to safe and inclusive educational environments. They advocate for policies that protect transgender students from discrimination and support their educational success.
 
 The Transgender Law Center also provides legal information, resources, and support for transgender and gender nonconforming individuals and their families. They offer helplines, workshops, and trainings to empower individuals and communities to advocate for their rights.
+
+The below are the citations where I took help or referred from
+https://transgenderlawcenter.org/
+https://en.wikipedia.org/wiki/Transgender_Law_Center
